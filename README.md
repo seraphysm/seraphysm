@@ -3,7 +3,7 @@
 ㅤ<img src="https://u.cubeupload.com/24ification/dfsdsf.png" width="100">ㅤ ㅤㅤㅤㅤㅤㅤㅤ  <img src="https://u.cubeupload.com/24ification/9e7sfdsfdsfd2.png" width="100">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ${{\color{#5c3c32} now}}$ ㅤ ${{\color{#5c3c32}i}}$ㅤ ${{\color{#5c3c32}wanna}}$ㅤ ${{\color{#5c3c32}be}}$ㅤ ${{\color{#5c3c32}the}}$ㅤ ${{\color{#5c3c32}tattoo}}$ㅤ ${{\color{#5c3c32}ink,}}$ 
 
-ㅤㅤ ㅤ${{\color{#5c3c32}that}}$ㅤ ${{\color{#5c3c32}swims}}$ㅤ ${{\color{#5c3c32}down}}$ㅤ ${{\color{#5c3c32}through}}$ㅤ ${{\color{#5c3c32}the}}$ㅤ ${{\color{#5c3c32}needle}}$ㅤ ${{\color{#5c3c32} in}}$ ㅤ   ${{\color{#5c3c32} your}}$ㅤ ${{\color{#5c3c32} skin.}}$
+ㅤㅤ ㅤ ${{\color{#5c3c32}that}}$ㅤ ${{\color{#5c3c32}swims}}$ㅤ ${{\color{#5c3c32}down}}$ㅤ ${{\color{#5c3c32}through}}$ㅤ ${{\color{#5c3c32}the}}$ㅤ ${{\color{#5c3c32}needle}}$ㅤ ${{\color{#5c3c32} in}}$ ㅤ   ${{\color{#5c3c32} your}}$ㅤ ${{\color{#5c3c32} skin.}}$
 <img src="https://u.cubeupload.com/24ification/932UntitledArtwork.gif#left" width="20">ㅤ
 <table>
   <br>
