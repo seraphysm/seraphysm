@@ -17,7 +17,7 @@ ${{\color{#5c3c32} now}}$ ㅤ ${{\color{#5c3c32}i}}$ㅤ ${{\color{#5c3c32}wanna}
 <div align="center">
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[*ata*](https://zaba.atabook.org) ${{\color{#5c3c32}ㅤ ꕀㅤ}}$ [*guns.lol*](https://guns.lol/exxus) ${{\color{#5c3c32}
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[*ata*](https://zaba.atabook.org) ${{\color{#5c3c32}ㅤ ꕀㅤ}}$ [*guns.lol*](https://guns.lol/exxus)
 
 
 
