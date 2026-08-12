@@ -1,6 +1,6 @@
 <img src="https://u.cubeupload.com/24ification/dsffdssdf.png" width="900">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img src="https://u.cubeupload.com/24ification/c37UntitledArtwork.gif" width="300" align="left">ㅤ
-ㅤㅤㅤㅤㅤㅤ<img src="https://u.cubeupload.com/24ification/tumblr64e16604869e29.png" width="100">ㅤ ㅤㅤㅤㅤㅤㅤㅤ  <img src="https://u.cubeupload.com/24ification/tumblrcdd0736268804a.png" width="100">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img src="https://u.cubeupload.com/24ification/tumblr64e16604869e29.png" width="100">ㅤ ㅤㅤㅤㅤㅤㅤㅤ  <img src="https://u.cubeupload.com/24ification/tumblrcdd0736268804a.png" width="100">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ${{\color{#5c3c32} take}}$ ㅤ ${{\color{#5c3c32}a}}$ㅤ ${{\color{#5c3c32}toke}}$ㅤ ${{\color{#5c3c32}of}}$ㅤ ${{\color{#5c3c32}his}}$ㅤ ${{\color{#5c3c32}wet}}$ㅤ ${{\color{#5c3c32}cigarette,}}$ 
 
 ㅤㅤ ${{\color{#5c3c32}you}}$ㅤ ${{\color{#5c3c32}pick}}$ㅤ ${{\color{#5c3c32}his}}$ㅤ ${{\color{#5c3c32}brains,}}$ㅤ ${{\color{#5c3c32}you}}$ㅤ ${{\color{#5c3c32}stub}}$ㅤ ${{\color{#5c3c32} it}}$ ㅤ   ${{\color{#5c3c32} on}}$ㅤ ${{\color{#5c3c32} his}}$ㅤ ${{\color{#5c3c32} chest.}}$
